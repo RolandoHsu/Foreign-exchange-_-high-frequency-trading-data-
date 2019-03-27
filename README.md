@@ -1,0 +1,1 @@
+# Foreign-exchange-_-high-frequency-trading-data-
